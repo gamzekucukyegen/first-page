@@ -1,3 +1,3 @@
-# first-page
-https://gamzekucukyegen.github.io/first-page/
+# coffe-addict
+https://gamzekucukyegen.github.io/coffe-addict/
 
